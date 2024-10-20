@@ -40,7 +40,7 @@ Let's make learning accessible to everyone, together! 🎉
 
 ## 🌟 Show Your Support
 If you like this project, please ⭐️ star this repository. Your support means a lot! 😊
-For 
+[For Donation:](https://buymeacoffee.com/knowzy)
 ---
 
 **Knowzy** - Learn Anything, Anywhere, For Free! 🏆
